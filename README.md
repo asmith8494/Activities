@@ -1,0 +1,2 @@
+# Activities
+In class activities
